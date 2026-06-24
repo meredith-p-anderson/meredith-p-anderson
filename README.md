@@ -1,6 +1,6 @@
 👋 Hi, I’m Meredith Anderson
 =====================
-working on a MS in Integrative Biology at Oregon State University 
+MS in Integrative Biology from Oregon State University 
 =====================
 BS Marine Sciences and Spanish minor from University of Florida
 --------------------
